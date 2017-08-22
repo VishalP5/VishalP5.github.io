@@ -1,0 +1,1 @@
+I am a Mechatronics Engineering Student at the University of Waterloo. I am a resourceful and imaginative problem solver.
