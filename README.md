@@ -1,1 +1,0 @@
-I am a Mechatronics Engineering Student at the University of Waterloo who is always eager to learn something new. I am a resourceful and imaginative problem solver with knowledge of mechanical design as well as software development.
